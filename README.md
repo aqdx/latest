@@ -3,17 +3,17 @@
 
 ---
 
-## 爱情岛论坛最新网址 (2023.07.05 UPDATED)
-### 【地址01】：[https://vip.aqdw71.com](https://vip.aqdw71.com?ref=github)
-### 【地址02】：[https://vip.aqdw86.com](https://vip.aqdw86.com?ref=github)
-### 【地址03】：[https://vip.aqdw204.com](https://vip.aqdw204.com?ref=github)
-### 【地址04】：[https://vip.aqdw128.com](https://vip.aqdw128.com?ref=github)
-### 【地址05】：[https://vip.aqdw165.com](https://vip.aqdw165.com?ref=github)
-### 【地址06】：[https://vip.aqdw131.com](https://vip.aqdw131.com?ref=github)
-### 【地址07】：[https://vip.aqdw70.com](https://vip.aqdw70.com?ref=github)
-### 【地址08】：[https://vip.aqdw56.com](https://vip.aqdw56.com?ref=github)
-### 【地址09】：[https://vip.aqdw136.com](https://vip.aqdw136.com?ref=github)
-### 【地址10】：[https://vip.aqdw67.com](https://vip.aqdw67.com?ref=github)
+## 爱情岛论坛最新网址 (2023.07.13 UPDATED)
+### 【地址01】：[https://vip.aqdw150.com](https://vip.aqdw150.com?ref=github)
+### 【地址02】：[https://vip.aqdw201.com](https://vip.aqdw201.com?ref=github)
+### 【地址03】：[https://vip.aqdw44.com](https://vip.aqdw44.com?ref=github)
+### 【地址04】：[https://vip.aqdw57.com](https://vip.aqdw57.com?ref=github)
+### 【地址05】：[https://vip.aqdw182.com](https://vip.aqdw182.com?ref=github)
+### 【地址06】：[https://vip.aqdw28.com](https://vip.aqdw28.com?ref=github)
+### 【地址07】：[https://vip.aqdw7.com](https://vip.aqdw7.com?ref=github)
+### 【地址08】：[https://vip.aqdw116.com](https://vip.aqdw116.com?ref=github)
+### 【地址09】：[https://vip.aqdw106.com](https://vip.aqdw106.com?ref=github)
+### 【地址10】：[https://vip.aqdw117.com](https://vip.aqdw117.com?ref=github)
 <br>
 
 ## 爱情岛论坛永久地址客户端下载
