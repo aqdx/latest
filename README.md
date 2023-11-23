@@ -3,17 +3,17 @@
 
 ---
 
-## 爱情岛论坛最新网址 (2023.11.17 UPDATED)
-### 【地址01】：[https://vip.aqdk289.com:2096](https://vip.aqdk289.com:2096?utm_source=github)
-### 【地址02】：[https://vip.aqdk299.com:2096](https://vip.aqdk299.com:2096?utm_source=github)
-### 【地址03】：[https://vip.aqdk288.com:2096](https://vip.aqdk288.com:2096?utm_source=github)
-### 【地址04】：[https://vip.aqdk209.com:2096](https://vip.aqdk209.com:2096?utm_source=github)
-### 【地址05】：[https://vip.aqdk154.com:2096](https://vip.aqdk154.com:2096?utm_source=github)
-### 【地址06】：[https://vip.aqdk159.com:2096](https://vip.aqdk159.com:2096?utm_source=github)
-### 【地址07】：[https://vip.aqdk95.com:2096](https://vip.aqdk95.com:2096?utm_source=github)
-### 【地址08】：[https://vip.aqdk94.com:2096](https://vip.aqdk94.com:2096?utm_source=github)
-### 【地址09】：[https://vip.aqdk83.com:2096](https://vip.aqdk83.com:2096?utm_source=github)
-### 【地址10】：[https://vip.aqdk59.com:2096](https://vip.aqdk59.com:2096?utm_source=github)
+## 爱情岛论坛最新网址 (2023.11.24 UPDATED)
+### 【地址01】：[https://vip.aqdk102.com:2096](https://vip.aqdk102.com:2096?utm_source=github)
+### 【地址02】：[https://vip.aqdk11.com:2096](https://vip.aqdk11.com:2096?utm_source=github)
+### 【地址03】：[https://vip.aqdk10.com:2096](https://vip.aqdk10.com:2096?utm_source=github)
+### 【地址04】：[https://vip.aqdk61.com:2096](https://vip.aqdk61.com:2096?utm_source=github)
+### 【地址05】：[https://vip.aqdk196.com:2096](https://vip.aqdk196.com:2096?utm_source=github)
+### 【地址06】：[https://vip.aqdk213.com:2096](https://vip.aqdk213.com:2096?utm_source=github)
+### 【地址07】：[https://vip.aqdk298.com:2096](https://vip.aqdk298.com:2096?utm_source=github)
+### 【地址08】：[https://vip.aqdk275.com:2096](https://vip.aqdk275.com:2096?utm_source=github)
+### 【地址09】：[https://vip.aqdk72.com:2096](https://vip.aqdk72.com:2096?utm_source=github)
+### 【地址10】：[https://vip.aqdk251.com:2096](https://vip.aqdk251.com:2096?utm_source=github)
 <br>
 
 ## 爱情岛论坛永久地址客户端下载
@@ -21,4 +21,4 @@
 
 <br>
 
-## 最新地址自动回复邮箱 [iav6.com@gmail.com](mailto:iav6.com@gmail.com)（发送任意内容即可获取最新地址）
+## 最新地址自动回复邮箱 [aqdlt.com@gmail.com](mailto:aqdlt.com@gmail.com)（发送任意内容即可获取最新地址）
