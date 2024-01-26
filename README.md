@@ -3,17 +3,17 @@
 
 ---
 
-## 爱情岛论坛最新网址 (2024.01.19 UPDATED)
-### 【地址01】：[https://vip.aqdk244.com:2096](https://vip.aqdk244.com:2096?utm_source=github)
-### 【地址02】：[https://vip.aqdk65.com:2096](https://vip.aqdk65.com:2096?utm_source=github)
-### 【地址03】：[https://vip.aqdk54.com:2096](https://vip.aqdk54.com:2096?utm_source=github)
-### 【地址04】：[https://vip.aqdk84.com:2096](https://vip.aqdk84.com:2096?utm_source=github)
-### 【地址05】：[https://vip.aqdk277.com:2096](https://vip.aqdk277.com:2096?utm_source=github)
-### 【地址06】：[https://vip.aqdk246.com:2096](https://vip.aqdk246.com:2096?utm_source=github)
-### 【地址07】：[https://vip.aqdk16.com:2096](https://vip.aqdk16.com:2096?utm_source=github)
-### 【地址08】：[https://vip.aqdk214.com:2096](https://vip.aqdk214.com:2096?utm_source=github)
-### 【地址09】：[https://vip.aqdk279.com:2096](https://vip.aqdk279.com:2096?utm_source=github)
-### 【地址10】：[https://vip.aqdk53.com:2096](https://vip.aqdk53.com:2096?utm_source=github)
+## 爱情岛论坛最新网址 (2024.01.26 UPDATED)
+### 【地址01】：[https://vip.aqdk132.com:2096](https://vip.aqdk132.com:2096?utm_source=github)
+### 【地址02】：[https://vip.aqdk294.com:2096](https://vip.aqdk294.com:2096?utm_source=github)
+### 【地址03】：[https://vip.aqdk58.com:2096](https://vip.aqdk58.com:2096?utm_source=github)
+### 【地址04】：[https://vip.aqdk37.com:2096](https://vip.aqdk37.com:2096?utm_source=github)
+### 【地址05】：[https://vip.aqdk198.com:2096](https://vip.aqdk198.com:2096?utm_source=github)
+### 【地址06】：[https://vip.aqdk81.com:2096](https://vip.aqdk81.com:2096?utm_source=github)
+### 【地址07】：[https://vip.aqdk118.com:2096](https://vip.aqdk118.com:2096?utm_source=github)
+### 【地址08】：[https://vip.aqdk119.com:2096](https://vip.aqdk119.com:2096?utm_source=github)
+### 【地址09】：[https://vip.aqdk103.com:2096](https://vip.aqdk103.com:2096?utm_source=github)
+### 【地址10】：[https://vip.aqdk137.com:2096](https://vip.aqdk137.com:2096?utm_source=github)
 <br>
 
 ## 爱情岛论坛永久地址客户端下载
