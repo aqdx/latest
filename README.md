@@ -3,17 +3,22 @@
 
 ---
 
-## 爱情岛论坛最新网址 (2024.04.16 UPDATED)
-### 【地址01】：[https://vip.aqdf190.com:20966](https://vip.aqdf190.com:20966?utm_source=github)
-### 【地址02】：[https://vip.aqdf103.com:20966](https://vip.aqdf103.com:20966?utm_source=github)
-### 【地址03】：[https://vip.aqdf148.com:20966](https://vip.aqdf148.com:20966?utm_source=github)
-### 【地址04】：[https://vip.aqdf188.com:20966](https://vip.aqdf188.com:20966?utm_source=github)
-### 【地址05】：[https://vip.aqdf251.com:20966](https://vip.aqdf251.com:20966?utm_source=github)
-### 【地址06】：[https://vip.aqdf297.com:20966](https://vip.aqdf297.com:20966?utm_source=github)
-### 【地址07】：[https://vip.aqdf43.com:20966](https://vip.aqdf43.com:20966?utm_source=github)
-### 【地址08】：[https://vip.aqdf66.com:20966](https://vip.aqdf66.com:20966?utm_source=github)
-### 【地址09】：[https://vip.aqdf77.com:20966](https://vip.aqdf77.com:20966?utm_source=github)
-### 【地址10】：[https://vip.aqdf98.com:20966](https://vip.aqdf98.com:20966?utm_source=github)
+## 爱情岛论坛最新网址 (2024.04.26 UPDATED)
+### 【地址01】：[https://vip.aqdf151.com:20966](https://vip.aqdf151.com:20966?utm_source=github)
+### 【地址02】：[https://vip.aqdf235.com:20966](https://vip.aqdf235.com:20966?utm_source=github)
+### 【地址03】：[https://vip.aqdf168.com:20966](https://vip.aqdf168.com:20966?utm_source=github)
+### 【地址04】：[https://vip.aqdf81.com:20966](https://vip.aqdf81.com:20966?utm_source=github)
+### 【地址05】：[https://vip.aqdf53.com:20966](https://vip.aqdf53.com:20966?utm_source=github)
+### 【地址06】：[https://vip.aqdf291.com:20966](https://vip.aqdf291.com:20966?utm_source=github)
+### 【地址07】：[https://vip.aqdf197.com:20966](https://vip.aqdf197.com:20966?utm_source=github)
+### 【地址08】：[https://vip.aqdf90.com:20966](https://vip.aqdf90.com:20966?utm_source=github)
+### 【地址09】：[https://vip.aqdf300.com:20966](https://vip.aqdf300.com:20966?utm_source=github)
+### 【地址10】：[https://vip.aqdf105.com:20966](https://vip.aqdf105.com:20966?utm_source=github)
+<br>
+
+## 爱情岛论坛永久地址客户端下载
+### 【Android客户端】![Android客户端](https://ww1.sinaimg.cn/large/007drMcOgy1fzljgv278jj300f00ia9t.jpg) [点击下载](https://app.aqdlt.app/v1/aqdlt_android_0828.apk)
+
 <br>
 
 ## 最新地址自动回复邮箱 [aqdlt.com@gmail.com](mailto:aqdlt.com@gmail.com)（发送任意内容即可获取最新地址）
