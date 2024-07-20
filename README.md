@@ -3,17 +3,17 @@
 
 ---
 
-## 爱情岛论坛最新网址 (2024.07.12 UPDATED)
-### 【地址01】：[https://vip.aqdf80.com:20966](https://vip.aqdf80.com:20966?utm_source=github)
-### 【地址02】：[https://vip.aqdf281.com:20966](https://vip.aqdf281.com:20966?utm_source=github)
-### 【地址03】：[https://vip.aqdf164.com:20966](https://vip.aqdf164.com:20966?utm_source=github)
-### 【地址04】：[https://vip.aqdf156.com:20966](https://vip.aqdf156.com:20966?utm_source=github)
-### 【地址05】：[https://vip.aqdf213.com:20966](https://vip.aqdf213.com:20966?utm_source=github)
-### 【地址06】：[https://vip.aqdf50.com:20966](https://vip.aqdf50.com:20966?utm_source=github)
-### 【地址07】：[https://vip.aqdf124.com:20966](https://vip.aqdf124.com:20966?utm_source=github)
-### 【地址08】：[https://vip.aqdf237.com:20966](https://vip.aqdf237.com:20966?utm_source=github)
-### 【地址09】：[https://vip.aqdf204.com:20966](https://vip.aqdf204.com:20966?utm_source=github)
-### 【地址10】：[https://vip.aqdf173.com:20966](https://vip.aqdf173.com:20966?utm_source=github)
+## 爱情岛论坛最新网址 (2024.07.21 UPDATED)
+### 【地址01】：[https://vip.aqdf152.com:20966](https://vip.aqdf152.com:20966?utm_source=github)
+### 【地址02】：[https://vip.aqdf292.com:20966](https://vip.aqdf292.com:20966?utm_source=github)
+### 【地址03】：[https://vip.aqdf1.com:20966](https://vip.aqdf1.com:20966?utm_source=github)
+### 【地址04】：[https://vip.aqdf89.com:20966](https://vip.aqdf89.com:20966?utm_source=github)
+### 【地址05】：[https://vip.aqdf210.com:20966](https://vip.aqdf210.com:20966?utm_source=github)
+### 【地址06】：[https://vip.aqdf55.com:20966](https://vip.aqdf55.com:20966?utm_source=github)
+### 【地址07】：[https://vip.aqdf112.com:20966](https://vip.aqdf112.com:20966?utm_source=github)
+### 【地址08】：[https://vip.aqdf207.com:20966](https://vip.aqdf207.com:20966?utm_source=github)
+### 【地址09】：[https://vip.aqdf56.com:20966](https://vip.aqdf56.com:20966?utm_source=github)
+### 【地址10】：[https://vip.aqdf161.com:20966](https://vip.aqdf161.com:20966?utm_source=github)
 <br>
 
 ## 爱情岛论坛永久地址客户端下载
